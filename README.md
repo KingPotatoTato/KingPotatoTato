@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @KingPotatoTato
 - 👀 I’m interested in Electrical Engineering
 - 📫 How to reach me kingpotatotato@gmail.com
-- 📟 Discord - KingPotatoTato#1840
+- 📟 Discord - @KingPotatoTato
