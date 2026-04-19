@@ -1,2 +1,2 @@
-[tatolabs.org](https://tatolabs.org).
+[tatolabs.org](https://tatolabs.org)
 
